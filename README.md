@@ -1,4 +1,1 @@
-assaalamu'alaikum
-Info tutorial
- hubungi fb author
-''kang pecinta alam''
+Just have fun 
